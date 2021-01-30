@@ -1,7 +1,7 @@
 ### Hola I'm Santosh Hembram 👋
 
-- 🔭 I’m currently working on Assignment & Project work.
-- 🌱 I’m currently learning in IMCA
+- 🔭 I’m currently working on Assignment & Project works.
+- 🌱 I’m currently learning different languages.
 - 💬 Ask me anything.
 - 📫 How to reach me:[@hembram_beta](https://www.instagram.com/hembram_beta/)
 - 😄 Pronouns: He/His
